@@ -8,5 +8,10 @@
 ## Kesan Pesan INTRIVIA Sejauh Ini 
 Intrivia sejauh ini sangat menyenangkan 
 
-## Kesan Pesan Cluster [Nomor Cluster] Sejauh Ini 
+## Kesan Pesan Cluster 20 Sejauh Ini 
 Cluster 20 orang orangnya asikkk
+
+## Harapan Kuliah 
+Lulus tepat waktu, IPK 4, Cumlaude dan gaada tugas-tugas ribet
+
+
